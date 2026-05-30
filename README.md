@@ -15,5 +15,9 @@
  
  <sup>⚠︎ before you interact w me know that i can be slow in responding please be patient, thanks.<br><br>
 
+ </details>
+</i>
+</div>
+
 
 
