@@ -4,7 +4,7 @@
 
 ಄ㅤ ![](https://komarev.com/ghpvc/?username=better-to-sleep&color=gray&style=flat&label=wolves) ㅤ⸙݁ ․
 
-<img width="63%" src="https://i.pinimg.com/736x/8a/7d/68/8a7d68fdb1e50bc5758aeece7dd6a29c.jpg">
+<img width="70%" src="https://i.pinimg.com/736x/8a/7d/68/8a7d68fdb1e50bc5758aeece7dd6a29c.jpg">
 
 [atabook](https://vera-is-not-a-loser.atabook.org/)ㅤ⠀﹒⠀[pronouns](https://pronouns.cc/@better-to-sleep)ㅤ⠀﹒ㅤ[strawpage](https://better-to-sleep.straw.page/)
 <details>
