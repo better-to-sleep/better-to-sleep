@@ -6,7 +6,7 @@
 
 <img width="67%" src="https://i.pinimg.com/736x/33/74/da/3374da75552b5019fdec2d904f0a2cdb.jpg">
 
-[atabook](https://vera-is-not-a-loser.atabook.org/)ㅤ﹒⠀[rentry](https://rentry.co/better-to-sleep)ㅤ⠀﹒ㅤ[strawpage](https://better-to-sleep.straw.page/)
+[atabook](https://vera-is-not-a-loser.atabook.org/)ㅤ﹒⠀[rentry](https://rentry.co/better-to-sleep)ㅤ﹒ㅤ[strawpage](https://better-to-sleep.straw.page/)
 <details>
 <summary>(̲.̲.̲◜̲ᴗ◝̲.̲.̲)̲つ</summary>
   <p align="center"> <sup>𓂃 i don't mind c̱+̲ẖ even if we don't know eαch other.<br>
