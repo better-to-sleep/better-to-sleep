@@ -13,7 +13,7 @@
   
    <sup>◟ 𝗯𝗮𝘀𝗶𝗰 𝗱𝗻𝗶 & just don't be weird towards me.<br>
  
- <sup>⚠︎ before you interact w me know that i can be slow in responding please be patient, thanks.<br><br>
+ <sup>ꕀ before you interact w me know that i can be slow in responding please be patient, thanks.<br><br>
 
  </details>
 
