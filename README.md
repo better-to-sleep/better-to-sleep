@@ -4,7 +4,7 @@
 
 <img src="https://files.catbox.moe/3e4oqs.png"> ![](https://komarev.com/ghpvc/?username=better-to-sleep&color=0f0f0f&style=flat-square&label=　૮・ﻌ・ა　) <img src="https://files.catbox.moe/3e4oqs.png"> 
 
-<img width="80%" src="https://files.catbox.moe/06903s.jpg">
+<img width="100%" src="https://files.catbox.moe/06903s.jpg">
 
 <sub><a href="https://vera-is-not-a-loser.atabook.org/" target="_blank">aтabook</a>ㅤ﹒⠀[rentry](https://rentry.co/better-to-sleep)ㅤ﹒ㅤ[strawpage](https://better-to-sleep.straw.page/)
 <details>
