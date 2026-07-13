@@ -15,5 +15,5 @@
    <sup><span style="color:#0f0f0f">◟𝗯𝗮𝘀𝗶𝗰 𝗱𝗻𝗶 & just don't be weird towards me.</span><br>
  
  <sup><span style="color:#0f0f0f">ꕀbefore you interact w me know that i can be slow in responding please be patient, thanks.</span><br><br>
-
+<sup> [waiting for something to happen?](https://www.youtube.com/watch?v=bQxyp28ZbdA&list=RDbQxyp28ZbdA&start_radio=1)<br>
  </details>
