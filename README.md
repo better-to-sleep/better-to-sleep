@@ -2,7 +2,7 @@
 <div align="center">
 
 
-಄ㅤ ![](https://komarev.com/ghpvc/?username=better-to-sleep&color=CD9FB4&style=flat-square&label=　૮・ﻌ・ა　) ㅤᲘ𐑼
+಄ㅤ ![](https://komarev.com/ghpvc/?username=better-to-sleep&color=CD9FB4&style=flat-square&label=　૮・ﻌ・ა　) ㅤᲘ𐑼 <img src="https://files.catbox.moe/3e4oqs.png"> 
 
 <img width="62%" src="https://i.pinimg.com/736x/33/74/da/3374da75552b5019fdec2d904f0a2cdb.jpg">
 
