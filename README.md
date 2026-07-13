@@ -2,7 +2,7 @@
 <div align="center">
 
 
-<img src="https://files.catbox.moe/3e4oqs.png"> ![](https://komarev.com/ghpvc/?username=better-to-sleep&color=0f0f0fstyle=flat-square&label=　૮・ﻌ・ა　) <img src="https://files.catbox.moe/3e4oqs.png"> 
+<img src="https://files.catbox.moe/3e4oqs.png"> ![](https://komarev.com/ghpvc/?username=better-to-sleep&color=graystyle=flat-square&label=　૮・ﻌ・ა　) <img src="https://files.catbox.moe/3e4oqs.png"> 
 
 <img width="62%" src="https://i.pinimg.com/736x/33/74/da/3374da75552b5019fdec2d904f0a2cdb.jpg">
 
