@@ -9,7 +9,7 @@
 
 <sub><a href="https://vera-is-not-a-loser.atabook.org/" target="_blank">aтabook</a>ㅤ﹒⠀[rentry](https://rentry.co/better-to-sleep)ㅤ﹒ㅤ[strawpage](https://better-to-sleep.straw.page/)
 <details>
-<summary>(..◜ᴗ◝..)つ</summary>
+<summary>[(..◜ᴗ◝..)つ](https://www.youtube.com/watch?v=bQxyp28ZbdA&list=RDbQxyp28ZbdA&start_radio=1)</summary>
   <p align="center"> <sup><span style="color:#0f0f0f">𓂃 i don't mind c̱+̲ẖ even if we don't know eαch other.</span>span><br>
   
    <sup><span style="color:#0f0f0f">◟𝗯𝗮𝘀𝗶𝗰 𝗱𝗻𝗶 & just don't be weird towards me.</span><br>
@@ -17,6 +17,3 @@
  <sup><span style="color:#0f0f0f">ꕀbefore you interact w me know that i can be slow in responding please be patient, thanks.</span><br><br>
 
  </details>
-
-
-
