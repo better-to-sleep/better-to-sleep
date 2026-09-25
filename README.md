@@ -5,7 +5,7 @@
 <img src="https://64.media.tumblr.com/84bf3e4844a48775ca0b0d8265c91d35/4a0e8aa9f3a7cd19-58/s540x810/ec8d37b92d656919f1bc3e38827a09c6129738c3.gifv"> ![](https://komarev.com/ghpvc/?username=better-to-sleep&color=0f0f0f&style=flat-square&label=　૮・ﻌ・ა　) <img src="https://files.catbox.moe/3e4oqs.png"> 
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Schoolbell&weight=100&size=17&duration=4500&pause=500&color=0F0F0F&center=true&vCenter=true&width=690&lines=i+think+you're+cute%2C+i'll+keep+you+in+the+cellar;show+you+to+the+children%2C+kill+me+after+dinner;you're+alright;you+look+like+someone+i+could+bury+in+the+garden;cover+you+in+diamonds+when+i+die;and+when+i+die" alt="Typing SVG" /></a>
-<img width="60%" src="https://files.catbox.moe/011mha.gif">
+<img width="60%" src="https://ru.pinterest.com/pin/327425835417507668/">
 
 <sub><a href="https://vera-is-not-a-loser.atabook.org/" target="_blank">aтabook</a>ㅤ﹒⠀[rentry](https://rentry.co/better-to-sleep)ㅤ﹒ㅤ[strawpage](https://better-to-sleep.straw.page/)
 <details>
